@@ -1,5 +1,3 @@
-# [L.GB] <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9GyRxRl8yxmwE88jQoGT5qvsIY-W6Xxu2_YzrbNNv7XVU6SUxLU9LasmRx7Bnd-mw9co-K_wDs-mAF-N2w6N6d2socUYPWpE24hzvrP9ikyctaxZTB7nmvfQOX1e7IuhLaC4IEVZgT_U/s1600/Terry+Crews+2.gif" width="100px">
-
 Eu sou <strong>Lucas</strong>, <strong>Pernambucano, Recifense, torcedor do Santa Cruz 🐍 e cursando Desenvolvimento de Sistemas no SENAC.</strong> 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo: <strong>T.I, Redação e Linguas Estrangeiras.</strong> 
